@@ -4,6 +4,4 @@
 
 
 
-
-
-https://jhsportal.adnu.edu.ph/?redirect=0
+https://jhsportal.adnu.edu.ph/
