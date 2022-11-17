@@ -6,8 +6,4 @@ BORGIR![image](https://user-images.githubusercontent.com/118332088/202355834-501
 JANREI SUPOT <3
 
 
-
 [PORTAL](https://jhsportal.adnu.edu.ph) 
-
-
-[PINAY FLES](https://topstreams.tv)
