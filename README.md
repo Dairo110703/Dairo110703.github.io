@@ -1,6 +1,6 @@
-                **Welcome fans of Dairo110703.github.io page**
+**Welcome fans of Dairo110703.github.io page**
 
-                             JANREI GWAPO <3
+JANREI GWAPO <3
 
 [PORTAL](https://jhsportal.adnu.edu.ph) 
 
